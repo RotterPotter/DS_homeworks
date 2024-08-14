@@ -1,1 +1,1 @@
-# Tkank you for your time. Enjoy! :)
+# Thank you for your time. Enjoy! :)
